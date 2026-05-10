@@ -1,4 +1,4 @@
-
+Enhance Tableau Desktop for macOS with advanced Tableau Desktop for macOS Helper | cloud-sync + AI-assisted-analysis, the #1 helper. Includes cloud-sync and AI-assisted-analysis
 
 
 
